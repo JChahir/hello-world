@@ -8,4 +8,4 @@ I am Currently working on a project with my Friend Robert B, where Artist and Mu
 Going to take alot of work and dedication but I am not giving up on this future buiness.
 Take one day at a time before you know it all the hard work will pay off!! 
 
-Thank you world!!!
+Thank you world and excited to share this journey!!!
